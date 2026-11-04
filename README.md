@@ -1,1 +1,1 @@
-# Dour-Sports---Plan-d-entra-nements
+# Dour Sports - Plan d'entrainements
